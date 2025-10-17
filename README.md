@@ -233,7 +233,7 @@ Wave-Mamba-kd/
 
 ## 📧 Contact
 
-如有问题，请提交 Issue 或联系：[your-email@example.com]
+如有问题，请提交 Issue 或联系：2199758653@qq.com]
 
 ---
 
